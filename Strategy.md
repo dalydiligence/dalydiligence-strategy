@@ -4,4 +4,4 @@
 
 **SURVIVE**
 
-**HAVE FUN***
+**HAVE FUN**
