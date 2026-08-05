@@ -5,3 +5,8 @@
 **SURVIVE**
 
 **HAVE FUN**
+
+**EARN TRUST**
+
+**CREATE VALUE**
+
